@@ -18,10 +18,9 @@ welcome , user
 - why skip win 9? forget bout hotmail? 
 - just.comon guy. do u kno how big of a prob it was when i used the emaail and didnt kno this. i never got contacted when most importantly, still was bein sent to anyone that email me.
 -  sure, butexchange server shows all there deleted... I dont like google andriod windows explorer Loook and app store only. who are they writing this for, me to buy. N0.
-  My big project was just one project over time writing my own explorer to use, as i casually would notice i cant find what i need very fast, to some, finding 1 program was the journey. congrats, now u can google somethin.
-  didnt worry bout new op systm or transfering pcs,
-  desktop changing, files different spotme. every thing is the same. but different. so my own sys32 folder  of tools, and special riht click and wat not, that led to 40 in 1 programs.
-  other than duh. i never stop 1st program testing. just like windows. wat i dirty underhanded trik.
-<!-
-n0alias0/n0alias0 is a ✨ special ?✨ repository because its `README.md` (this file) appears on your GitHub profile. thats it, that is not special. i would think that is clever tho
-I pput all my effort on these things, i forget to use account.
+  My big project was just one project over time writing my own explorer to use, as i casually would notice i cant find what i need very fast, to some, finding 1 program was the journey. social media. only that might nott crash it. 
+  didnt worry bout a new op systm or transfering pcs,
+  desktop changing, files different spot. every thing  same. but different. enough of that
+<!, at end of day, thats all people need. just make it come on to my stuff agian.
+n0alias0/n0alias0 is a ✨ special ?✨ repository because its `README.md` (this file) appears on your GitHub profile. thats it, that is not special. i would think tha
+I pput all my effort on these things
